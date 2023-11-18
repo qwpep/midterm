@@ -1,0 +1,2 @@
+# midterm
+Tynybekov Nurtay Amanturovich
